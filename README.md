@@ -37,9 +37,11 @@ flat earth
 golf
 hate
 hatred
+hillary
 hockey
 ivanka
 kardashian
+obama
 overwatch
 potus
 pride
@@ -47,6 +49,7 @@ putin
 republican
 republican
 republicans
+sanders
 senate
 sjw
 snapchat
